@@ -4,6 +4,8 @@ https://bibleonmoney.finance.blog
 # Posts
 1. https://bibleonmoney.finance.blog/2020/01/04/proverbs-1-profit-path-of-greed/
 2. https://bibleonmoney.finance.blog/2020/01/04/whats-a-good-name/
+3. https://bibleonmoney.finance.blog/2020/01/04/missing-the-mark-souls-profit-point/
+4. https://bibleonmoney.finance.blog/2020/01/04/crown-of-the-cross-hillsong-worship/
 
 Question(s) / Problem(s) / curse: anxiety attachment worry fear doubt debt greed false sense of security emotional material attachments ignorance caused by money concerns consume(rism) Christianity core (cause) issue is at heart is a heart issue and a relationship issue with God, weakness lack of faith fire and passions of greed consumes fuel (gas cheap toxic energy source)
 
