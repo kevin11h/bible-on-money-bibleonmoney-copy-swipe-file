@@ -20,3 +20,14 @@ Answer.  Solution.  Cure: Faith in God is fuel that lasts forever.  Treasury and
 
 
 13Come now, you who say, “Today or tomorrow we will go to this or that city,spend a year there, carry on business,and make a profit.” 14You do not even know what will happen tomorrow! What is your life? You are a mist that appears for a little while and then vanishes - James 4:13-14
+
+
+bibleaboutmoney.finance.blog
+
+# Affiliate
+https://refer.wordpress.com/affiliate-network/campaign-sharing/
+https://refer.wordpress.com/affiliate-network/campaign-performance/
+Dwe..?star
+https://bibleonmoney.tumblr.com/
+lk.ABCD
+Where your treasure?
