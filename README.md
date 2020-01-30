@@ -2,8 +2,16 @@
 https://bibleonmoney.finance.blog
 https://twitter.com/bibleonmoney
 https://compass1.org/about/
-Christian Finance for Teens: A Simple Guide to Financial by Cindy
+# Book Christian Finance for Teens: A Simple Guide to Financial by Cindy
+bibleaboutmoney.finance.blog
+https://finance.townhall.com/columnists/jerrybowyer/2019/07/01/biblical-economics--finance-the-bible-on-money--saving-n2549284
+https://itsamoneything.com/money/quotes-bible-money-wealth-riches/#.XjK0hzJKjX4
+knowing-jesus.com
+https://bible.knowing-jesus.com/topics/Loving-Money
+https://acheerfulgiver.org/2018/01/31/3-encouragements-on-money-from-the-bible/
+https://parablesreception.blogspot.com/2018/05/the-eye-of-needle-is-not-gate.html
 
+![](https://images.knowing-jesus.com/w/400/54-1+TIMOTHY/1+Timothy+6-10+The+Love+Of+Money+Is+A+Root+Of+Evil+beige.jpg)
 
 # Posts
 1. https://bibleonmoney.finance.blog/2020/01/04/proverbs-1-profit-path-of-greed/
