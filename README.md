@@ -11,7 +11,12 @@ https://bible.knowing-jesus.com/topics/Loving-Money
 https://acheerfulgiver.org/2018/01/31/3-encouragements-on-money-from-the-bible/
 https://parablesreception.blogspot.com/2018/05/the-eye-of-needle-is-not-gate.html
 
+https://www.christianitytoday.com/history/issues/issue-14/money-and-bible.html
+https://pclawrenceville.org/stewardship-2020-whats-in-your-wallet/
+
 ![](https://images.knowing-jesus.com/w/400/54-1+TIMOTHY/1+Timothy+6-10+The+Love+Of+Money+Is+A+Root+Of+Evil+beige.jpg)
+
+![](https://pclawrenceville.org/wp-content/uploads/2019/11/bigstock-Holy-Bible-on-money-background-122732501-768x512.jpg)
 
 # Posts
 1. https://bibleonmoney.finance.blog/2020/01/04/proverbs-1-profit-path-of-greed/
