@@ -2,6 +2,7 @@
 https://bibleonmoney.finance.blog
 https://twitter.com/bibleonmoney
 https://compass1.org/about/
+Christian Finance for Teens: A Simple Guide to Financial by Cindy
 
 
 # Posts
