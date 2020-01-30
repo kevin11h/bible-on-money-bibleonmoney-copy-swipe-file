@@ -1,5 +1,8 @@
 # bible-on-money-bibleonmoney-copy-swipe-file
 https://bibleonmoney.finance.blog
+https://twitter.com/bibleonmoney
+https://compass1.org/about/
+
 
 # Posts
 1. https://bibleonmoney.finance.blog/2020/01/04/proverbs-1-profit-path-of-greed/
