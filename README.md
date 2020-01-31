@@ -1,4 +1,7 @@
 # bible-on-money-bibleonmoney-copy-swipe-file
+
+https://github.com/kevin11h/Twitter-to-Steemit-Cross-Poster-Guide-Tutoria
+
 https://bibleonmoney.finance.blog
 https://twitter.com/bibleonmoney
 https://compass1.org/about/
