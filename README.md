@@ -1,6 +1,8 @@
 # bible-on-money-bibleonmoney-copy-swipe-file
 
+# Steemit
 https://github.com/kevin11h/Twitter-to-Steemit-Cross-Poster-Guide-Tutoria
+https://saveblogging.com/how-to-make-money-on-steemit/
 
 https://bibleonmoney.finance.blog
 https://twitter.com/bibleonmoney
