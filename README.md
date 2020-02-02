@@ -5,7 +5,8 @@ https://github.com/kevin11h/Twitter-to-Steemit-Cross-Poster-Guide-Tutoria
 https://saveblogging.com/how-to-make-money-on-steemit/
 
 # SEO
-https://search.google.com/search-console/welcome
+https://en.support.wordpress.com/getting-more-views-and-traffic/
+# ## https://search.google.com/search-console/welcome
 https://en.support.wordpress.com/monetize-your-site/#affiliate-linking
 
 # Affiliate
