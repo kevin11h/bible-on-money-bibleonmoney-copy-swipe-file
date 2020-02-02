@@ -9,7 +9,9 @@ https://search.google.com/search-console/welcome
 https://en.support.wordpress.com/monetize-your-site/#affiliate-linking
 
 # Affiliate
+https://en.support.wordpress.com/adding-amazon-com-affiliate-links-to-your-wordpress-com-site/
 
+https://en.support.wordpress.com/monetize-your-site/#affiliate-linking
 
 https://bibleonmoney.finance.blog
 https://twitter.com/bibleonmoney
